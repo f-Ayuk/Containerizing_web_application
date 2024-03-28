@@ -2,4 +2,3 @@
 
 ### Guys, please write your emails here so I can create a group for us
 
-g.bogore@alustudent.com
